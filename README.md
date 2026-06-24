@@ -1,1 +1,1 @@
-# divyankkauhsik.github.io
+# divyankkaushik.github.io
